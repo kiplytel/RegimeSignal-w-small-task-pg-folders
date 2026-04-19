@@ -1,1 +1,0 @@
-# RegimeSignal-w-small-task-pg-folders
